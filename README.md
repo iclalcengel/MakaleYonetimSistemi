@@ -1,3 +1,4 @@
+![image](https://github.com/iclalcengel/MakaleYonetimSistemi/assets/115634785/92510a66-c8d4-4363-9596-5e000d7e08e1)
 [image](https://github.com/iclalcengel/MakaleYonetimSistemi/assets/115634785/5dd30d76-0aa9-4979-8fc7-b6e868189a59)
 ![image](https://github.com/iclalcengel/MakaleYonetimSistemi/assets/115634785/f2231328-bf29-4792-8e86-92fbbc956797)
 ![image](https://github.com/iclalcengel/MakaleYonetimSistemi/assets/115634785/aa7ed6f3-25bf-4aaa-8fa5-fdc0dd663e42)
